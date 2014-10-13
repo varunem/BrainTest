@@ -1,0 +1,2 @@
+## This file is created to test the learning over the week. Creating projects like these help to strengthen the muscle memory by way of creating repitions. By creating repititons you are moving the memory from shorterm housing to long term housing.
+The short term housing has only four spots, think of spots like boxes. The long term memory has unlimited capacity, but it is important to visit the long term storage frequently to increase the speed at which you can find the Information. This is called as synapses in Brian studies.
